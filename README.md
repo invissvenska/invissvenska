@@ -9,5 +9,5 @@
 - 💬 Let's help each other at [Stack Overflow](https://stackoverflow.com/users/3850345/svdtweel)
 
 #### Like my work?
-If you like my work and want to say thanks, or encourage me to do more, you can ☕️[Buy me a coffee](https://www.paypal.com/paypalme/svenvandentweel/3)!
+If you like my work and want to say thanks, or encourage me to do more, you can ☕️[Buy me a coffee](https://www.paypal.com/paypalme/svenvandentweel/3)!  
 Contribute to my coffee fund with any amount you are comfortable to pay.
